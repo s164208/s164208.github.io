@@ -1,1 +1,3 @@
 ## Welcome to my pages :D 
+
+Her kan man skrive ting...
